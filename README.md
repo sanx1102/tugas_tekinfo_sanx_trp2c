@@ -1,1 +1,0 @@
-# tugas_tekinfo_sanx_trp2c
